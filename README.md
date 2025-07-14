@@ -1,0 +1,1 @@
+"KAPASITOR" adalah perusahaan yang bergerak di bidang retail dan jasa teknis kelistrikan serta teknologi energi terbarukan seperti PLTS dan turbin angin. Kami menyediakan produk komponen listrik, serta jasa instalasi dan perawatan sistem kelistrikan untk area Maluku Utara.
